@@ -1,4 +1,4 @@
-![image](https://github.com/binarynonsense/binarynonsense/assets/8535921/2ebcb48e-2890-4369-ba71-69361615d5c6)
+![image](https://github.com/binarynonsense/binarynonsense/assets/8535921/85376ccd-fe93-4163-b007-55efe8e49380)
 
 Hi, I'm Álvaro García (binarynonsense). I make games, graphic art, software...
 
